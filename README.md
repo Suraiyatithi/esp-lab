@@ -1,1 +1,10 @@
 "# esp-lab" 
+lab-1 picture---(https://ibb.co/HgXPyBp)
+lab-2a pic...(https://ibb.co/XzwGmWj)
+lab-2b--(https://ibb.co/K2JXTct)
+lab-3a---(https://ibb.co/nc4r9Nn)
+lab-3b--(https://ibb.co/Sd849Zz)
+lab-4a--(https://ibb.co/z5x07vf)
+lab-4b--(https://ibb.co/rbjgHDF)
+lab--6(https://ibb.co/fSg5RD3)
+lab-7(https://ibb.co/9Z81SV0)
